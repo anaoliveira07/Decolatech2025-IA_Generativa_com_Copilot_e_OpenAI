@@ -1,0 +1,1 @@
+# Decolatech2025-IA_Generativa_com_Copilot_e_OpenAI
